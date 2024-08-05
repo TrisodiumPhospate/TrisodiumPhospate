@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TrisodiumPhospate
+- 👀 I’m interested in gdi stuff 
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on nowhere
+- 📫 How to reach me: you cant
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: idk
