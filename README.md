@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on nowhere
 - 📫 How to reach me: you cant
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: idk
+- ⚡ Fun fact: i know how to ride a bike
