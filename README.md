@@ -5,3 +5,4 @@
 - 📫 How to reach me: you cant
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i know how to ride a bike
+- 🎥 my yt: https://www.youtube.com/@Trisodium
