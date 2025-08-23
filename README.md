@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @TrisodiumPhospate
-- 👀 I’m interested in gdi stuff 
-- 🌱 I’m currently learning how to code
+- 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nowhere
 - 📫 How to reach me: you cant
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i know how to ride a bike
+- ⚡ Fun fact: idk
 - 🎥 my yt: https://www.youtube.com/@Trisodium
+- 
