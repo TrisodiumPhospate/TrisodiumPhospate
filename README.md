@@ -1,8 +1,3 @@
-- 👋 Hi, I’m @TrisodiumPhospate
-- 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on nowhere
-- 📫 How to reach me: you cant
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: idk
+github forced me to make this file but i rlly didnt want to so yea
 - 🎥 my yt: https://www.youtube.com/@Trisodium
-- 
+  
